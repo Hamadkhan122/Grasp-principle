@@ -1,3 +1,6 @@
+# Video Explanation: 
+
+https://drive.google.com/file/d/1WYT_nXnu2bWnk2T7cyKBWS85hC0c0qRd/view?usp=sharing
 # Grasp-principle
 ## Overview
 
